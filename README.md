@@ -9,4 +9,6 @@ Sou da Escola do Jose Ephim e estou aprendendo o alura
 criei uma conta no github e estou criando a conta
 
 
+
+
 ![](https://media.tenor.com/TE1CceFR3B8AAAAM/vit%C3%B3ria-s%C3%A3o-paulo-fc.gif)
